@@ -1,4 +1,6 @@
-RADIOSTATIC CANON RADIOSTATIC CANON RADIOSTATIC CANON RADIOSTATIC CANON
+<p align="center"> jester / kin names / names of pony i have atm        they , it , any</p>
+<p align="center"> RADIOSTATIC CANON RADIOSTATIC CANON RADIOSTATIC CANON RADIOSTATIC CANON</p>
+
 ![Image](https://github.com/user-attachments/assets/16980bfc-f0f9-4c71-8e6b-8984aa3def75)
 ![Image](https://github.com/user-attachments/assets/424b66a5-e54f-43a7-9e4c-8f955354da1c)
 ![Image](https://github.com/user-attachments/assets/6febbf38-bb21-4d6f-9cd6-7865507653cd)
