@@ -2,20 +2,3 @@
 
 ㅤㅤㅤRADIOSTATIC CANON RADIOSTATIC CANON RADIOSTATIC CANON RADIOSTATIC CANON
 
-![Image](https://github.com/user-attachments/assets/16980bfc-f0f9-4c71-8e6b-8984aa3def75)
-![Image](https://github.com/user-attachments/assets/424b66a5-e54f-43a7-9e4c-8f955354da1c)
-![Image](https://github.com/user-attachments/assets/6febbf38-bb21-4d6f-9cd6-7865507653cd)
-![Image](https://github.com/user-attachments/assets/78f5a705-4a0d-49ea-8a5f-0653c933c165)
-![Image](https://github.com/user-attachments/assets/a1377963-eb4e-4d1f-8247-51622ab2e36c)
-![Image](https://github.com/user-attachments/assets/e1b0ac38-11ec-4294-bce6-e0bcc9aa4ec9)
-![Image](https://github.com/user-attachments/assets/2b5e1edf-a9a7-4d71-a83e-62cbb1b70ae8)
-![Image](https://github.com/user-attachments/assets/0e898f44-dfd8-4aba-8f79-8573cc798a5a)
-![Image](https://github.com/user-attachments/assets/38927061-c1ec-42ea-adde-6ad1d4893699)
-![Image](https://github.com/user-attachments/assets/94f44b92-5b9c-4821-a5e4-1fd4de8bc8d1)
-![Image](https://github.com/user-attachments/assets/5862875c-48c1-4f9a-913e-c221907d0c6c)
-![Image](https://github.com/user-attachments/assets/96be202b-bc55-4ff1-9275-4182a36562b7)
-![Image](https://github.com/user-attachments/assets/07f9b9ad-50e3-4c82-ae69-079344a053db)
-![Image](https://github.com/user-attachments/assets/76d69404-8517-4e91-a924-1c8935530177)
-![Image](https://github.com/user-attachments/assets/c564b813-8ca3-4f5b-88d0-0181fcb3f4e2)
-![Image](https://github.com/user-attachments/assets/8f3808b3-945c-40a9-b8e8-248e0ca7889c)
-![Image](https://github.com/user-attachments/assets/9d21c456-6e76-415b-bc45-1243ffb974d0)
