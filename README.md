@@ -2,6 +2,6 @@
 <p align="center">jester ㅤ ㅤㅤㅤ𓏵  ㅤㅤㅤㅤkin names</p>
 <p align="center">𑣲ㅤ theyㅤ itㅤ any   ㅤ⸝⸝   ㅤ18ㅤ 𐂂</p>
 <p align="center">╋━━━━━━━━━━━━━━━━━━━</p>
-<p align="center"> <a href="https://pronouns.cc/@DEALMAKER">I.</a>  <a href="https://statiicradio.atabook.org/">II.</a>  ﾉ <a href="https://patreon.com/fooling">III.</a>  ﾉ <a href="https://dealmak3r.straw.page">IV.</a>
+<p align="center"> <a href="https://pronouns.cc/@DEALMAKER">ι.</a>ㅤ <a href="https://statiicradio.atabook.org/">ιι.</a>ㅤ <a href="https://patreon.com/fooling">ιιι.</a>ㅤ <a href="https://dealmak3r.straw.page">ιν.</a>
 <p align="center">RADIOSTATIC CANON MURDERMEDIA CANON STATICRADIO CANON RADIOSTATIC CANON</p>
 
